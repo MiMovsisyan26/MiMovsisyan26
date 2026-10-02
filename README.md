@@ -1,16 +1,17 @@
-## Hi there 👋
 
-<!--
-**MiMovsisyan26/MiMovsisyan26** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Hi there its the big M&M
 
-Here are some ideas to get you started:
+I love sushi
+Sushi loves me
+Life is sushi
+Sushi is life
+Eat sushi
+Dream of sushi
+think of sushi
+talk about sushi
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+My car is a sushi 
+My dog is a sushi
+love sushi
+<img width="601" height="332" alt="images" src="https://github.com/user-attachments/assets/55baaae3-ed1e-4a9c-835a-51053f07e906" />
+
